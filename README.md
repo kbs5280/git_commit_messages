@@ -1,5 +1,5 @@
 These are Kris' changes.
 
-Made some more change
+Made some more changes -- Jason 4 President
 
 i am making some changes
